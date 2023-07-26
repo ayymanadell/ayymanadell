@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Ayman</h1>
-<h3 align="center">A passionate and results-driven Data Analyst / Scientist </h3>
+<h3 align="center">A passionate and results-driven Data Analyst/Scientist </h3>
 
 - 📫 How to reach me **aymmannadel@gmail.com**
 

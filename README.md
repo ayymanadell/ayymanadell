@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **aymmannadel@gmail.com**
 
-- 📄 Know about my experiences [ My resume ](https://drive.google.com/drive/u/0/search?lfhs=2&q=aymanadel) 
+- 📄 Know about my experiences [ My resume ](https://drive.google.com/file/d/16UtBLw2B4RoGD99HW1WIK-uBTeMV8sGW/view?usp=sharing) 
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
